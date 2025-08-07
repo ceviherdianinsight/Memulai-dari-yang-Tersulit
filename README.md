@@ -1,0 +1,1 @@
+# Memulai-dari-yang-Tersulit
