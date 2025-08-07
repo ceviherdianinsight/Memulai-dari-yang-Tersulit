@@ -45,6 +45,6 @@ bukan yang nyaman, tapi yang tangguh.
 <br>
 
 
-> **Untukmu yang mendobrak batas-batas limitasi, 25 Juli 2025**
+> **Untukmu yang memulai dari hal tersulit, 25 Juli 2025**
 > 
 > **by: [ceviherdianinsight.github.io](https://ceviherdianinsight.github.io)**
